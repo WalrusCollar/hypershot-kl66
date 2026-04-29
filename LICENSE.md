@@ -1,4 +1,4 @@
-
+Experience hypershot like never before with instant hypershot Scripts, the #1 Script. Includes auto-farm and aimbot for unbeatable performance.
 
 
 
